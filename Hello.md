@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Patz
+- 👀 I’m interested in NFTs, art and crypto
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on generative art
+- 📫 How to reach me: by email to patofunes@gmail.com or Twitter: @patz_mikis
